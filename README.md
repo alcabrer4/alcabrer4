@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @alcabrer4
 - 👀 I’m interested in Data Analytics :D 
-- 🌱 I’m currently learning python XP 
-- 💞️ I’m looking to collaborate on whatever I can learn something new 
-- 📫 Send me a dm to al.cabrer4 on Instagram, you can also follow me haha, I'm trying to become famous ;)
